@@ -3,7 +3,7 @@
 
 - 🔭 I’m currently Student at **Faletehan University**
 
-- 📝 I regularly write articles on [https://prtmaar.blogspot.com/](https://prtmaar.blogspot.com/)
+- 📝 My blog's [https://prtmaar.blogspot.com/](https://prtmaar.blogspot.com/)
 
 - 📫 How to reach me **dendipratamar@gmail.com**
 
